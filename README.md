@@ -10,4 +10,5 @@ How to Setup :
 5. ENJOY✔
 
 Disclaimer :
-Only use this if ur allowed to !!!!!!!!!!!
+The program has been made for educational purposes, do not use it for malicious purposes.
+ !!!!!!!!!!!
